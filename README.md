@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mathouxen... I deadass go by Mathouxen.
-- 👀 I’m interested in ... baddies mainly. I mean BMW's are cool too. Ooouuu, and Lambos.
-- 🌱 I’m currently learning ... how to make a website from scratch. I have big big plans in the pipeline.
+- 👀 I’m interested in ... stock BMW's mainly. I mean Lambos are cool too..
+- 🌱 I’m currently learning ... how to make a website from scratch. I have big big plans in the pipeline. ('scratch' as in from start, lol.)
 - 💞️ I’m looking to collaborate on ... you tell me, I'm down for almost anything... heists, fraud, what's the move?
 - 📫 How to reach me ... hit up my celly! (+2773 259 3109, WhatsApp only!), (+2767 808 2443, iMessage, call, SMS)
 - 😄 Pronouns: ... HIM!... maybe one day.
